@@ -12,4 +12,6 @@ Pakistan is not a Democracy.
 "I am Inevitible"    
 "And I am...... IRONMAN"
 
-Is there any changes?
+Is there any changes
+
+Bhutan too is not a democracy.
